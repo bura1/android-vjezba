@@ -1,1 +1,1 @@
-4.5 sati4.5 sati4.5 sati
+4.5 sati
